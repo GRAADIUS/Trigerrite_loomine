@@ -1,1 +1,0 @@
-# Trigerrite_loomine
